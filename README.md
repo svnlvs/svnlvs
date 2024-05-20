@@ -1,0 +1,7 @@
+-  Hi, I’m @svnlvs :]
+-  I’m interested in reading/writing, drawing, singing, acting, sleeping, and playing games
+-  I’m currently learning things about mental health!
+-  I like Harry Potter, Breaking Bad, GOT, Heartstopper, Westworld, and The Mummy (1999), black cats, ramen noodles, and music
+-  I dislike people who romanticize mental health, people who are rude for no reason, and people who don't know the difference between "you're" and "your"
+-  Pronouns: He/They
+-  Fun fact: Yo mama
